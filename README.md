@@ -1,5 +1,4 @@
-
-<p align="center" 
+ 
 ![image](https://github.com/segawass/README/assets/148575469/e579f11d-98d8-4117-9271-9501b8a9f9d2)
 
 <p align="center" ![image](https://64.media.tumblr.com/b9ef1c8bc59693f8a003a10a8460d93e/3ab37b35962881fb-f4/s75x75_c1/9fc94270eac2806a62db0e24df87520ceea92b21.gifv) ✧ . . . Warren or Ren . . . ✧ ![image](https://64.media.tumblr.com/63e509f338846e3a573d857f69505ca2/3ab37b35962881fb-6f/s75x75_c1/ae7c358970f06caba7edad1cb1c521c8991dfe50.gifv)
